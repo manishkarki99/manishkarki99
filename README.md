@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning more about crypto.<br>👯 I’m looking to collaborate on Personal projects.<br>🤔 I’m looking for help with Backend.<br>💬 Ask me about Hardware ,Trading.<br>📫 How to reach me: Twitter - @K81785214KARKI<br>😄 Pronouns: He/His<br>⚡ Fun fact I am a Trader and Software engineer.
+🌱 I’m currently learning more about trading.<br>👯 I’m looking to collaborate on Personal projects.<br>🤔 I’m looking for help with Frontend.<br>💬 Ask me about Hardware ,Trading.<br>📫 How to reach me: Twitter - @K81785214KARKI<br>😄  Fun fact I am a Trader and Software engineer.
 
 
 ## 🌐 Socials:
